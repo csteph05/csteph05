@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🏹 About Me:
 <br><br>👋 hi, I'm Charles!<br>🤔 IT student but also interested in Data Science and Robotics.<br>🌱 I'm currently trying to find my way in college 😅<br>📫 charles_cordez@dlsu.edu.ph<br><br>
 
 
