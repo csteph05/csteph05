@@ -1,5 +1,5 @@
 # 🏹 About Me:
-<br><br>🤔 IT student but also interested in Data Science and Robotics.<br>🌱 I'm currently trying to find my way in college 😅<br>📫 charles_cordez@dlsu.edu.ph<br><br>
+<br><br>📫 charles_cordez@dlsu.edu.ph<br><br>
 
 
 ## 🌐 Socials:
