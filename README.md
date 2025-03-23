@@ -1,4 +1,4 @@
-# 🏹 About Me:
+# About Me:
 <br><br>📫 charles_cordez@dlsu.edu.ph<br><br>
 
 
